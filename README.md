@@ -1,6 +1,6 @@
 ## Hi, I'm Vinh but you can call me Steven! I like both names.
 
-🦉 I'm currently pursuing a Master Degree in Business Analytics which is a big milestone for my professional development,
+🦉 I'm currently pursuing Master Degree in Business Analytics which is a big milestone for my professional development,
 
 🎯 I have 3 years working eperiences in Data Analysis, Marketing Analysis, and Digital Marketing,
 
