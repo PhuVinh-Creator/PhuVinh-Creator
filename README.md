@@ -1,8 +1,11 @@
 ## Hi, I'm Vinh but you can call Steven! I like both names.
 
 🦉 I'm currently pursuing a Master Degree in Business Analytics which is a big milestone for my professional development,
+
 🎯 I have 3 years working eperiences in Data Analysis, Marketing Analysis, and Digital Marketing,
+
 🎓 I earn myself Data Analytics Certifiacte with GPA of 96 and an Excel Certificate from Havard,
+
 ✨ I have achieved 700% return on ad spend (ROAS of 8) by analyzing the historical data from digital campaign report and optimized the marketing channels performance.
 
 
