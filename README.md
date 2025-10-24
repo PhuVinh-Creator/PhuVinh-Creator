@@ -1,4 +1,4 @@
-## Hi, I'm Vinh but you can call Steven! I like both names.
+## Hi, I'm Vinh but you can call me Steven! I like both names.
 
 🦉 I'm currently pursuing a Master Degree in Business Analytics which is a big milestone for my professional development,
 
